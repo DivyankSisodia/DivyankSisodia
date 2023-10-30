@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dhruvsisodia13@gmail.com**
 
-- ⚡ Fun fact **rookie with high motivation**
+- ⚡ Fun fact: **rookie with high motivation**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
